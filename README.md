@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @azubineba
 - 👀 I’m interested in IT systems Integration
-- 🌱 I’m currently learning Fachinformatiker fur systemintegration
+- 🌱 I’m currently Training as IT specialist for systemintegration
 - 💞️ I’m looking to collaborate on different projects
 - 📫 How to reach me jickneba@gmail.com
 - 😄 Pronouns: ...
