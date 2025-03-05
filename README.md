@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @azubineba
-- 👀 I’m interested in IT systems Integration
+- 👀 I’m interested in Technology
 - 🌱 I’m currently Training as IT specialist for systemintegration
 - 💞️ I’m looking to collaborate on different projects
 - 📫 How to reach me jickngea@gmail.com
